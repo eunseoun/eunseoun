@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @eunseoun
-- 👀 I’m interested in back to my past currier.
+- 👀 I’m interested in back to my past career.
 - 🌱 I’m currently learning from zero.
 - 💞️ I’m not looking to collaborate with someone.
 - 📫 How to reach me twitter @dariapon
